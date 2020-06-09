@@ -1,2 +1,2 @@
-# black-lives-matter
+# Black Lives Matter
 Black Lives Matter
